@@ -26,3 +26,21 @@
 <div align="center">
   <img src="https://i.pinimg.com/736x/c7/d9/05/c7d905dd4835a2dfa94479cc4edaf459.jpg" width="700" height="500"/>
 </div>
+
+𝘽𝙏𝙒 𝙢𝙮 𝙛𝙖𝙫𝙤𝙪𝙧𝙞𝙩𝙚 𝙖𝙪𝙩𝙝𝙤𝙧 LOL
+
+
+
+
+  <img src="https://i.pinimg.com/736x/cd/ff/b2/cdffb25de3a276dbfbf206dcb345903c.jpg" width="500" height="500"/>
+</div>
+<div align="center">
+
+«Посторонний» (фр. L'Étranger) — дебютный роман (или повесть) французского писателя Альбера Камю (1942). Классическая иллюстрация идей экзистенциализма. В переводе Г. В. Адамовича именуется «Незнакомец». 
+
+  <img src="https://i.pinimg.com/736x/63/34/a7/6334a7e09f456216c3f4ef73e937d86f.jpg" width="500" height="700"/>
+</div>
+<div align="center">
+
+
+
