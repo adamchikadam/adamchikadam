@@ -27,7 +27,7 @@
   <img src="https://i.pinimg.com/736x/c7/d9/05/c7d905dd4835a2dfa94479cc4edaf459.jpg" width="700" height="500"/>
 </div>
 
-𝘽𝙏𝙒 𝙢𝙮 𝙛𝙖𝙫𝙤𝙪𝙧𝙞𝙩𝙚 𝙖𝙪𝙩𝙝𝙤𝙧 LOL
+𝘽𝙏𝙒 𝙢𝙮 𝙛𝙖𝙫𝙤𝙪𝙧𝙞𝙩𝙚 writer LOL???
 
 
 
