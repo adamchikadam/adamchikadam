@@ -52,3 +52,13 @@
   <img src="https://i.pinimg.com/736x/5b/9f/82/5b9f822b9a92090a8798daa6578155b9.jpg" width="500" height="700"/>
 </div>
 <div align="center">
+
+
+don't you get tired of cutting your hair like a sixteen-year-old lesbian????? ?
+
+fuck it I love the Beatles too much
+
+
+ <img src="https://i.pinimg.com/originals/5a/88/71/5a8871bd2955fcf664d3a7b79b30a7b9.gif" width="500" height="500"/>
+</div>
+<div align="center">
