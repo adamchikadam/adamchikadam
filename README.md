@@ -27,6 +27,8 @@
   <img src="https://i.pinimg.com/736x/c7/d9/05/c7d905dd4835a2dfa94479cc4edaf459.jpg" width="700" height="500"/>
 </div>
 
+---
+
 𝘽𝙏𝙒 𝙢𝙮 𝙛𝙖𝙫𝙤𝙪𝙧𝙞𝙩𝙚 writer LOL???
 
 
@@ -47,12 +49,16 @@
 </div>
 <div align="center">
 
+---
+
 steddie endgame steddie endgame steddie endgame steddie endgame steddie endgame steddie endgame steddie endgame steddie endgame steddie endgame steddie endgame steddie endgame steddie endgame steddie endgame steddie endgame steddie endgame steddie endgame steddie endgame steddie endgame steddie endgame steddie endgame steddie endgame steddie endgame steddie endgame steddie endgame steddie endgame steddie endgame steddie endgame steddie endgame steddie endgame steddie endgame steddie endgame steddie endgame steddie endgame steddie endgame steddie endgame steddie endgame steddie endgame steddie endgame steddie endgame steddie endgame steddie endgame steddie endgame steddie endgame steddie endgame steddie endgame steddie endgame steddie endgame steddie endgame steddie endgame steddie endgame steddie endgame steddie endgame steddie endgame steddie endgame steddie endgame-
+
 
   <img src="https://i.pinimg.com/736x/5b/9f/82/5b9f822b9a92090a8798daa6578155b9.jpg" width="700" height="700"/>
 </div>
 <div align="center">
 
+---
 
 don't you get tired of cutting your hair like a sixteen-year-old lesbian????? ?
 
