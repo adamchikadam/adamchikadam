@@ -29,7 +29,7 @@
 
 ---
 
-𝘽𝙏𝙒 𝙢𝙮 𝙛𝙖𝙫𝙤𝙪𝙧𝙞𝙩𝙚 writer LOL???
+𝙢𝙮 𝙛𝙖𝙫𝙤𝙪𝙧𝙞𝙩𝙚 writer LmAo???
 
 
 
@@ -62,7 +62,7 @@ steddie endgame steddie endgame steddie endgame steddie endgame steddie endgame 
 
 don't you get tired of cutting your hair like a sixteen-year-old lesbian????? ?
 
-fuck it I love the Beatles too much
+fuck it I love the Beatles sososossoosos much
 
 
  <img src="https://i.pinimg.com/originals/5a/88/71/5a8871bd2955fcf664d3a7b79b30a7b9.gif" width="500" height="500"/>
@@ -71,7 +71,7 @@ fuck it I love the Beatles too much
 
 
 
-me and Jeremy Hillary Boob by my friend Zhenya <3333
+btw me and Jeremy Hillary Boob by my friend Zhenya <3333
 
 
 
