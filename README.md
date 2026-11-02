@@ -18,63 +18,6 @@
 </div>
 <div align="center">
   
- ## Noize МС пообещал больше не бить Хованского!!!
-Иван «Noize МС» Алексеев прокомментировал для агентства InterMedia инцидент со стендап-комиком Юрием Хованским. На рэп-фестивале Versus в Санкт-Петербурге дело у них дошло до драки. 
-
-"Юрий Хованский неоднократно позволял себе крайне резкие, откровенно ругательные высказывания в мой адрес в интернете, - сообщил Иван. - Каждый имеет право на своё мнение по поводу чьей угодно творческой или иной публичной деятельности, и я лояльно отношусь к любым оценкам моего труда."
-
-<div align="center">
-  <img src="https://i.pinimg.com/736x/c7/d9/05/c7d905dd4835a2dfa94479cc4edaf459.jpg" width="700" height="500"/>
-</div>
-
----
-
-𝙢𝙮 𝙛𝙖𝙫𝙤𝙪𝙧𝙞𝙩𝙚 writer LmAo???
 
 
 
-
-  <img src="https://i.pinimg.com/736x/cd/ff/b2/cdffb25de3a276dbfbf206dcb345903c.jpg" width="500" height="500"/>
-</div>
-<div align="center">
-
-«Посторонний» (фр. L'Étranger) — дебютный роман (или повесть) французского писателя Альбера Камю (1942). Классическая иллюстрация идей экзистенциализма. В переводе Г. В. Адамовича именуется «Незнакомец». 
-Сюжет
-Повествование делится на две части: 
-Первая часть описывает обыденную жизнь Мерсо в Алжире. В начале романа Мерсо получает известие о смерти матери, но реагирует на это с холодной отстранённостью, не проявляя ожидаемого горя. После похорон он возвращается к своему привычному образу жизни: встречается с подругой Мари, работает, общается с соседями, не проявляя особых эмоций.
-Конфликт начинается, когда Мерсо, оказавшись на пляже, неожиданно убивает араба. Это убийство становится поворотным моментом, который ведёт ко второй части романа, где Мерсо предстоит предстать перед судом. Однако центральной темой суда становится не само преступление, а аморальное поведение Мерсо, его равнодушие к матери и обществу.
-
-
-  <img src="https://i.pinimg.com/736x/63/34/a7/6334a7e09f456216c3f4ef73e937d86f.jpg" width="500" height="700"/>
-</div>
-<div align="center">
-
----
-
-steddie endgame steddie endgame steddie endgame steddie endgame steddie endgame steddie endgame steddie endgame steddie endgame steddie endgame steddie endgame steddie endgame steddie endgame steddie endgame steddie endgame steddie endgame steddie endgame steddie endgame steddie endgame steddie endgame steddie endgame steddie endgame steddie endgame steddie endgame steddie endgame steddie endgame steddie endgame steddie endgame steddie endgame steddie endgame steddie endgame steddie endgame steddie endgame steddie endgame steddie endgame steddie endgame steddie endgame steddie endgame steddie endgame steddie endgame steddie endgame steddie endgame steddie endgame steddie endgame steddie endgame steddie endgame steddie endgame steddie endgame steddie endgame steddie endgame steddie endgame steddie endgame steddie endgame steddie endgame steddie endgame steddie endgame-
-
-
-  <img src="https://i.pinimg.com/736x/5b/9f/82/5b9f822b9a92090a8798daa6578155b9.jpg" width="700" height="700"/>
-</div>
-<div align="center">
-
----
-
-don't you get tired of cutting your hair like a sixteen-year-old lesbian????? ?
-
-fuck it I love the Beatles sososossoosos much
-
-
- <img src="https://i.pinimg.com/originals/5a/88/71/5a8871bd2955fcf664d3a7b79b30a7b9.gif" width="500" height="500"/>
-</div>
-<div align="center">
-
-
-
-btw me and Jeremy Hillary Boob by my friend Zhenya <3333
-
-
-
- <img src="https://sun9-19.userapi.com/s/v1/ig2/xVnPBsQxQVAqNloUzHwlOrGiICDe6nBdNyB2EEJL6SXyuo30QvIcRHzpKW3TW52T1evArG1vj0cxFRTP51w0aVDD.jpg?quality=95&as=32x27,48x41,72x61,108x92,160x136,240x204,360x305,480x407,540x458,640x543,720x611,1080x916,1280x1086&from=bu&u=-M_YXKAS-uvjk7SSkvwefHIxlykUAxA1mqoIf7KufF0&cs=1280x0" width="650" height="500"/>
-</div>
-<div align="center">
