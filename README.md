@@ -5,7 +5,7 @@
  ▂ ▃ ▄ ▅ ▆ ▇ █ █ ▇ ▆ ▅ ▄ ▃ ▂
 
 
-<img src="https://i.pinimg.com/736x/db/6c/40/db6c403a2b1fce806efec4536a375a77.jpg" width=40% height=60%>
+<img src="https://i.pinimg.com/736x/85/32/b6/8532b6ed27aef4ea168b90c04bcc43a2.jpg" width=40% height=60%>
 
 
   <img src="assets/demo1.gif" alt="Demo 1" width="300">
