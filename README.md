@@ -1,6 +1,6 @@
 <div align="center">
   
- ## Me when I got the 60s pop culture autism instead of the being good at math or science  
+ ## *Me when I got the 60s pop culture autism instead of the being good at math or science*  
 
  ▂ ▃ ▄ ▅ ▆ ▇ █ █ ▇ ▆ ▅ ▄ ▃ ▂
 
